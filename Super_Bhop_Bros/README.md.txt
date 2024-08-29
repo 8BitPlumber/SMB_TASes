@@ -1,0 +1,1 @@
+TAS for Super Bhop Bros. You can download the hack here: https://www.romhacking.net/hacks/8781/ and watch the video here: https://www.youtube.com/watch?v=jr5RyQbCDOs
